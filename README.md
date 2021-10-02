@@ -1,1 +1,0 @@
-# ewrs-kyouyu
